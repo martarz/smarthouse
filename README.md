@@ -1,1 +1,1 @@
-www.shgs.pl
+www.smgs.pl
